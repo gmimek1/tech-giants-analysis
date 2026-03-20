@@ -1,0 +1,1 @@
+# Tech Giants Analysis Summary - 2023 Performance Review - Data collected for thesis research
